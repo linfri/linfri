@@ -1,4 +1,4 @@
-### Hi, I'm Linn 👋 [she/her]
+### Hi, I'm Linn 👋 
 
 - 🌱 I'm studying statistics and machine learning at Linköping University, Sweden 🇸🇪 (LiU)
 - 👩🏼‍🏫 In parallel I'm working as a teaching assistant at LiU and as an online data analyst at TELUS AI.
