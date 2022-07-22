@@ -9,4 +9,4 @@
 - 🎶 I've put together [a compilation project](https://kalaminerecords.com/intent/) featuring 78 artists from 25 countries so far.
 - 👅 I speak English 🇺🇸, Swedish 🇸🇪, Norwegian 🇳🇴 (østnorsk), studied Icelandic 🇮🇸 and Latin.
 - 💬 Ping me about: **music collaboration**, **R**, **netlabels**, **job opportunities** (always looking for new challenges!)
-
+- 👀 Check out [other things](https://linktr.ee/linfri) I do.
